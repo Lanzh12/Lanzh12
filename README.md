@@ -1,6 +1,6 @@
 # Halo, Saya Lamz, panggil aja Lam!
 
-# maklumi jika egk jelas:3
+# maklumi kalo egk jelas:3
 
 ## Tentang ku:)
 > - 😅 egk pandai codingan.
