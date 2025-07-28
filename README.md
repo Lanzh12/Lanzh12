@@ -19,6 +19,6 @@
 
 "Bekerja saat mereka tidur. Belajar saat mereka berpesta. Hemat sementara mereka menghabiskan. Hiduplah seperti mimpi mereka."
 
-> kalo butuh apa" [lanzhosting12@gmail.com](mailto:lanzhosting12@gmail.com)
+> kalo butuh apa" [https://wa.me/628388810788](mailto:https://wa.me/628388810788)
 
 > Tengkyu, follow:v
